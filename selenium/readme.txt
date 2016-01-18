@@ -1,0 +1,1 @@
+Nale¿y zamieniæ czas z Fast na Slow.
